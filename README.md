@@ -168,7 +168,7 @@ Green Belt is globally recognized & valued.
 
 
 - Lean Six Sigma Green Belt Program → https://www.icertglobal.com/quality-management/six-sigma-green-belt  
-- iCert Global Homepage → https://www.icertglobal.com  
+- iCert Global→ https://www.icertglobal.com  
 
 ---
 
